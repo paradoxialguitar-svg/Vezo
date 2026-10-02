@@ -1,0 +1,6 @@
+- Nearly 2 million Palestinians have been displaced and over 36,000 people have been killed since 7 October 2023 including 14,100 children. There are famine-like conditions in the north of the Gaza Strip.
+- As many as 3.3 million people, including 1.7 million children, are in need across the State of Palestine. 
+- Children in the Gaza Strip are displaced, often multiple times, at risk of being killed or maimed, and remain out of school. Acute threats to children include malnutrition, disease, access to safe water, sanitation, and mental health. 
+- UNICEF is responding at scale in the Gaza Strip with WASH, Nutrition, Health, Child Protection and Multi-Purpose Cash, while preparing for return to learning for children. 
+- In the West Bank, UNICEF is responding to the deteriorating situation, increased displacements and the impact of grave child rights violations including the killing and maiming of children. 
+- UNICEF requires US$ 526.1 million for 2024 to provide access to basic services, prevention and treatment of child malnutrition and child illnesses through nutrition, health and WASH interventions; provision of child protection services while restoring learning; and meeting families’ basic needs through humanitarian cash transfers.

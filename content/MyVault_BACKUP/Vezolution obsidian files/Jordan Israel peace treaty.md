@@ -1,0 +1,8 @@
+#UNITED_NATIONS 
+Though Jordan was also a party in the 1973 war, it did not join the talks, fearing condemnation from other Arab nations. A separate Israel-Jordan peace treaty was signed in 1994.
+In 1994, Israel and Jordan negotiated a peace treaty, which was signed by Yitzhak Rabin, King Hussein and Bill Clinton in Washington ,DC on 25 July 1994. The Washington Declaration says that Israel and Jordan ended the official state of enmity and would start negotiations to achieve an "end to bloodshed and sorrow" and a just and lasting peace.
+
+On 26 October 1994, Jordan and Israel signed a peace treaty, normalizing relations between them and resolving territorial disputes, including water sharing. The treaty adjusted land and water disputes, and provided for broad cooperation in tourism and trade. It also included a pledge that neither Jordan nor Israel would allow its territory to become a staging ground for military strikes by a third country. The treaty was closely linked to efforts to achieve peace between the Isralis and Palestenians.
+Following the agreements, Israel and Jordan opened their borders. Several border-crossings were erected, allowing tourists, businessmen and workers to travel between the two countries. Israeli tourists started to visit Jordan, and many foreign tourists would combine visits to both countries.
+
+In 1996, the two countries signed a trade treaty. As part of the agreement, Israel assisted in establishing a modern medical center in Amman.
